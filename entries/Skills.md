@@ -1,0 +1,1 @@
+The best skills to learn now is programming and AI
